@@ -6,4 +6,4 @@ My name is Ceci Popova!
 -  I can speak four different languages:English, Greek, Russion and Bulgarian!
 -  I almost finished my bachelor degree in Biotechnology! Almost...
 -->
-![dfdf](https://quotesgram.com/img/quotes-computer-science-and-art/3559890/)
+![](https://engineering.tufts.edu/sites/g/files/lrezom421/files/styles/embedded_large/public/Programs_Dept-ComputerScience_lrg_0.jpg?itok=nKHOb7F2)
