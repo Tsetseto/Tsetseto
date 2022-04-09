@@ -6,4 +6,4 @@ My name is Ceci Popova!
 -  I can speak four different languages:English, Greek, Russion and Bulgarian!
 -  I almost finished my bachelor degree in Biotechnology! Almost...
 -->
-![](https://customsitesmedia.usc.edu/wp-content/uploads/sites/59/2016/09/16103951/AI_illustration_web-824x549.jpg)
+![](https://www.intelligentcio.com/apac/wp-content/uploads/sites/44/2021/08/AdobeStock_451368646-w.jpg)
